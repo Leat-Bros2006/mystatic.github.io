@@ -1,0 +1,1 @@
+# mystatic.github.io
